@@ -1,1 +1,0 @@
-# BL143_Guz2025_Aysenur_Dedeoglu
